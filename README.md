@@ -1,0 +1,1 @@
+# ForecastHargaNikel-Smatic6.0
